@@ -4,4 +4,6 @@
 
 我们欢迎您参与其中！
 
-[Bilibili 账号](https://space.bilibili.com/3546620878654067?spm_id_from=333.337.0.0)
+此外，讨论现已开放，我们会参考有用的意见来学习！
+
+[Bilibili 官方账号](https://space.bilibili.com/3546620878654067?spm_id_from=333.337.0.0)
